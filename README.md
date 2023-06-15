@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎈 I'm currently working on Voice Assistant
+🎈 rfb0053@gmail.com
 
 
 ## 🌐 Socials:
